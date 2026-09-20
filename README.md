@@ -1,4 +1,1 @@
-# re-stitch
-# re-stitch
-# re-stitch
-# re-stitch
+# Exploring crochet-making and remixing
